@@ -1,1 +1,1 @@
-Ekran Görüntüsü Eklendi.
+Ekran Görüntüsü Eklendi.cd
